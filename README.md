@@ -1,4 +1,4 @@
-# **Loading to YandexDick**
+# **Loading to YandexDisk**
 
 ***Описание***
 
